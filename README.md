@@ -1,2 +1,0 @@
-# AudaxDesign
-Audax Design
